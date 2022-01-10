@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-01-11 | [Ski touring in the High Tauern mountain range near Bad Gastein, Austria (© RooM the Agency/Alamy)](https://cn.bing.com/th?id=OHR.SkiTouring_EN-US1605895803_UHD.jpg) 
+
 2022-01-10 | [Rice laid out to dry in Dhamrai, Dhaka, Bangladesh (© Amazing Aerial Agency/Offset by Shutterstock)](https://cn.bing.com/th?id=OHR.RiceBangladesh_EN-US1519717699_UHD.jpg) 
 
 2022-01-08 | [Nazaré Lighthouse atop Forte de São Miguel Arcanjo, Nazaré, Portugal (© Richard A Lock/Getty Images)](https://cn.bing.com/th?id=OHR.FortedeSao_EN-US1357701666_UHD.jpg) 
