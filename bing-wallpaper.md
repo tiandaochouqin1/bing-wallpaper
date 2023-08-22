@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-23 | [Amphitheatre of El Jem, Tunisia (© Westend61/Getty Images)](https://cn.bing.com/th?id=OHR.TunisiaAmphitheatre_EN-US0644159608_UHD.jpg) 
+
 2023-08-22 | [Emerald Lake, South Klondike Highway, Yukon, Canada (© artherng/Getty Images)](https://cn.bing.com/th?id=OHR.EmeraldLakeYukon_EN-US0522450551_UHD.jpg) 
 
 2023-08-20 | [Squirrel looking into the lens of a camera (© Alfredo Piedrafita/Getty Images)](https://cn.bing.com/th?id=OHR.CameraSquirrel_EN-US0174540169_UHD.jpg) 
